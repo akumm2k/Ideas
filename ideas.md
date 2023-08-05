@@ -21,3 +21,7 @@
   submission have to defend it somehow. If they don't they lose the
   homework points.
     Expound this idea to your supervisor. :)
+
+- You have to suffer voluntarily. You have to do everything you want
+  to do with full consent, absolutely volutarily, in order to do
+  anything approximating something perfect.
