@@ -1,5 +1,11 @@
+## Do not settle for the sub-optimal
+
 - Your life is already at risk. You will die. Only make optimal
   choices. Do not lower your standards ever.
+
+---
+
+## Surround yourself with your core values
 
 - Use screens as portaits and flags in your house, and let all these
   ideas and visions flow thru them, keeping you in touch with your
@@ -10,7 +16,15 @@
   -- this is a deal between us that you will never break. You will
   take 10 bullets for them and still keep going. Take care ;)
 
+---
+
+## Keep Giving
+
 - Give.
+
+---
+
+## Dealing with LLM as a tool in academia
 
 - Promote usage of ChatGPT in homework. However, lower the weight
   given to homework. Run chatgpt on the homework and ask it the
@@ -22,6 +36,19 @@
   homework points.
     Expound this idea to your supervisor. :)
 
+---
+
+## Don't do it unless it's voluntary
+
 - You have to suffer voluntarily. You have to do everything you want
   to do with full consent, absolutely volutarily, in order to do
   anything approximating something perfect.
+
+---
+
+## Reiterate. Look at the forest.
+
+- This is what people miss. People start to do extremely domain
+  specific things (working in a node), that they lose track of the
+  bigger picture (the tree or the forest). Take time every week to
+  look at the forest.
