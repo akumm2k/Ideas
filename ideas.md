@@ -52,3 +52,29 @@
   specific things (working in a node), that they lose track of the
   bigger picture (the tree or the forest). Take time every week to
   look at the forest.
+
+---
+
+## Defense mechanism: Consumed by self (cautiously)
+
+- Be consumed by yourself, without risking overconsumption and
+  derailling. This is so it will be harder for people to join-in
+  unless they are really up for putting up with you.
+
+  How to prevent overconsumption and going off track?
+  - Well, there's certain anchors / axioms that
+    keep you from derailing.
+    Eg: the bible, your writings, your closed ones who keep you
+    accountable, and your idols.
+      - How do we ensure that these anchors are robust?
+        - Pick tough anchors. How about truth? gratitude? honor?
+          hard-work? love? care? passion? sacrifice? discipline?
+          faith?
+          Would it be enough for you to live
+          by them and would you be okay to die for them?
+          Yes.
+          Is there a better alternative? I can't think of any.
+  - Let these anchors keep you from falling in the face of rejection.
+    To live, you must risk rejection.
+
+---
