@@ -78,3 +78,12 @@
     To live, you must risk rejection.
 
 ---
+
+## Getting out of a rut
+
+- Decide and do loop for things you want to do. Just keep inching
+  forward. **Offense**
+- No loop for things you do not want to do. Just keep saying no.
+  **Defense**
+
+---
