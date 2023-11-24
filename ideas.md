@@ -49,9 +49,9 @@
 ## Reiterate. Look at the forest.
 
 - This is what people miss. People start to do extremely domain
-  specific things (working in a node), that they lose track of the
-  bigger picture (the tree or the forest). Take time every week to
-  look at the forest.
+  specific things (working in a node), such that they lose track
+  of the bigger picture (the tree or the forest).
+  Take time every week to look at the forest.
 
 ---
 
