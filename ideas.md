@@ -87,3 +87,10 @@
   **Defense**
 
 ---
+
+## Betrayal
+
+- Life is unfair by nature. That's why the least we can do is be fair to others.
+- Therefore, being unfair -- "betrayal" -- is the worst form of sin.
+
+---
