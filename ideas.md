@@ -96,3 +96,11 @@
 - Therefore, being unfair -- "betrayal" -- is the worst form of sin.
 
 ---
+
+## Victimhood
+
+- Never use your problems as an excuse for not doing important things.
+- Typically, those important things are the antidote to the problems
+  themselves.
+
+---
