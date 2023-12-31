@@ -43,6 +43,8 @@
 - You have to suffer voluntarily. You have to do everything you want
   to do with full consent, absolutely volutarily, in order to do
   anything approximating something perfect.
+- Physiologically, doing things voluntarily is equivalent to having
+  full neurological drive.
 
 ---
 
