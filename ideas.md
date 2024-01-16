@@ -104,3 +104,10 @@
   themselves.
 
 ---
+
+## Strength
+
+Strength is not just about pure power output. It is about technique.
+If you positon the egg just right, it can sustain hundreds of pounds.
+
+---
