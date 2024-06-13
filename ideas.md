@@ -117,3 +117,11 @@ If you positon the egg just right, it can sustain hundreds of pounds.
 Everything that's not worthy needs to go.
 
 ---
+
+# Take the opportunity to practise
+
+The opportuunity offers itself through school, through hard times.
+Be a student, learn. They are usually microcosms for harder problems
+that lay ahead. Practise grit, practise patience, practise truth, ...
+
+---
