@@ -125,3 +125,9 @@ Be a student, learn. They are usually microcosms for harder problems
 that lay ahead. Practise grit, practise patience, practise truth, ...
 
 ---
+
+# Give yourself up for something bigger
+
+- Take the shot to die for your passion.
+
+---
