@@ -131,3 +131,9 @@ that lay ahead. Practise grit, practise patience, practise truth, ...
 - Take the shot to die for your passion.
 
 ---
+
+# Stay vigilant. Do not punish the WRONG thing
+
+Punish actions, not people.
+
+---
