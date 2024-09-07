@@ -32,7 +32,7 @@
   submission what questions should I ask the student to verify that
   they are the ones who wrote the code?". And then, ask the students
   during the homework review those questions. Every one who made a
-  submission have to defend it somehow. If they don't they lose the
+  submission has to defend it somehow. If they don't they lose the
   homework points.
     Expound this idea to your supervisor. :)
 
