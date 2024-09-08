@@ -15,3 +15,10 @@
 - You have to suffer voluntarily. You have to do everything you want
   to do with full consent, absolutely volutarily, in order to do
   anything approximating something perfect.
+
+- While there are certainly psychopaths out there,
+  most men aren’t as creepy as they are naive.
+  Labeling someone as "creepy" doesn’t help them
+  improve--it just brands them.
+  Worse, it may push them into internalizing that label,
+  eventually becoming what they’ve been accused of.
