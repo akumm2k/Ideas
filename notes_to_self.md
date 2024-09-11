@@ -137,3 +137,13 @@ that lay ahead. Practise grit, practise patience, practise truth, ...
 Punish actions, not people.
 
 ---
+
+# Follow the reciprocity
+
+Reciprocity is the fuel to any connection or relationship.
+It's offering a hand, and see if the other person takes it, and
+vice versa. It's where the real value lies. The lack thereof is a
+litmus test for whether you should pursue a connection further.
+Don't conflate reciprocity with vengeance though.
+
+---
