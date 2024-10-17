@@ -106,7 +106,7 @@ Everything that's not worthy needs to go.
 
 # Take the opportunity to practise
 
-The opportuunity offers itself through school, through hard times.
+The opportunity offers itself through school, through hard times.
 Be a student, learn. They are usually microcosms for harder problems
 that lay ahead. Practise grit, practise patience, practise truth, ...
 
@@ -127,7 +127,7 @@ Punish actions, not people.
 # Follow the reciprocity
 
 Reciprocity is the fuel to any connection or relationship.
-It's offering a hand, and see if the other person takes it, and
+It's offering a hand, and seeing if the other person takes it, and
 vice versa. It's where the real value lies. The lack thereof is a
 litmus test for whether you should pursue a connection further.
 Don't conflate reciprocity with vengeance though.
@@ -136,7 +136,7 @@ Don't conflate reciprocity with vengeance though.
 
 # Constrain exploration
 
-Be mindful of how many new and unknown situation you expose yourself
+Be mindful of how many new and unknown situations you expose yourself
 to every week. Too many new situations carry risk of immense negative
 (and positive) emotion. This negative emotion, if snowballed, can
 be detrimental. Control your suffering, kid.
