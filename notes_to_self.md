@@ -133,3 +133,12 @@ litmus test for whether you should pursue a connection further.
 Don't conflate reciprocity with vengeance though.
 
 ---
+
+# Constrain exploration
+
+Be mindful of how many new and unknown situation you expose yourself
+to every week. Too many new situations carry risk of immense negative
+(and positive) emotion. This negative emotion, if snowballed, can
+be detrimental. Control your suffering, kid.
+
+---
