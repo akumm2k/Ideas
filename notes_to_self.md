@@ -142,3 +142,10 @@ to every week. Too many new situations carry risk of immense negative
 be detrimental. Control your suffering, kid.
 
 ---
+
+# Get at it; time is running out
+
+You don't consume time. Time consumes you.
+Get at it.
+
+---
