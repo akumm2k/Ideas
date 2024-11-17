@@ -149,3 +149,11 @@ You don't consume time. Time consumes you.
 Get at it.
 
 ---
+
+# Don't fuck up
+
+Don't fuck up kid. I rely on you.
+Who's gonna carry the boat, the logs, and the people?
+Everything you do, matters.
+
+---
