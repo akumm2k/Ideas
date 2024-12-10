@@ -157,3 +157,11 @@ Who's gonna carry the boat, the logs, and the people?
 Everything you do, matters.
 
 ---
+
+# Take the slow death
+
+It's easy to take a bullet for someone. It's not trivial to work hard
+to make their lives easier. Grind, and express your love through your
+hard work and perseverance. That's where true love and meaning lie.
+
+---
