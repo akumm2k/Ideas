@@ -9,7 +9,7 @@ I suspect that by failing to offer clear closure, women encourage
 men that host vengeance to reciprocate in kind (or not so much).
 
 Now, I am not vengeful, but I do not forget. I remember,
-and I can bite like a pitbull (metaphorically for defense).
+and I know how to defend myself.
 Decency and strength are powerful against ignorance and
 weakness to face and express the truth. Remember, your vices
 are not just yours. You influence others in ways you can't fathom.
