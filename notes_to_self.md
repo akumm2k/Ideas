@@ -165,3 +165,14 @@ to make their lives easier. Grind, and express your love through your
 hard work and perseverance. That's where true love and meaning lie.
 
 ---
+
+# Absorb the pain, produce the light
+
+Be a grave for negativity.
+What if you could not only absorb your pain, but also of others?
+What if all that came out of you was love and positivity?
+
+Do NOT cast your pain on others.
+Do NOT complain, unless you speak for others.
+
+---
